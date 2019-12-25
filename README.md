@@ -1,0 +1,1 @@
+# fujifilm.photo-frame.com
